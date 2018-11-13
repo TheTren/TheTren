@@ -1,2 +1,0 @@
-# TheTren
-FAJNY OPIS V2
